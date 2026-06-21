@@ -11,3 +11,5 @@ I'm a fictionkin , my current kin is Ze from A ReGect.     ▄︻デ══━一
 
 >> I enjoy interacting with anyone but if you are under 15 please iwc.
 
+>> ReGect hit my line please👀👀
+
