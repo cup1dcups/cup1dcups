@@ -3,7 +3,7 @@
 
   ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-I'm a fictionkin , my current kin is Ze from A ReGect.     ▄︻デ══━一   . . . 
+I'm a fictionkin , my current kin is Ze from A ReGect.     ▄︻デ══━一   . . .  ata book > https://cup1dcups.atabook.org/?page=1
 
 >> I like multiple fandoms. Some of my main ones are A ReGect  ,  SFAWTDE  ,  ACEOFSPADES  ,  Ect/Ask.
 
