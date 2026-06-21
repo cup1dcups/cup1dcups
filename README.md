@@ -13,3 +13,4 @@ I'm a fictionkin , my current kin is Ze from A ReGect.     ▄︻デ══━一
 
 >> ReGect hit my line please👀👀
 
+>> I encourage cuddles! Don't be nervous to sit with me.
